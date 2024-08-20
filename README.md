@@ -4,9 +4,9 @@
 
  📫 How to reach me:
 
-  1:1 Session :   https://topmate.io/naif_m_s/
-  Mail :   support@naif.in
-  LinkedIn : https://www.linkedin.com/in/naifms/
+  1:1 Session : https://topmate.io/naif_m_s/
+  Mail :  support@naif.in
+  LinkedIn :  https://www.linkedin.com/in/naifms/
   
 
 
