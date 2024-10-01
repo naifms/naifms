@@ -5,6 +5,8 @@
  📫 How to reach me:
  
   1:1 Session :  https://topmate.io/naif_m_s/
+
+  Message : https://www.naif.in/contact
  
   Mail :  support@naif.in
  
